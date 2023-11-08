@@ -1,1 +1,1 @@
-# Miigaik_-Informatics
+# Miigaik_Informatics
